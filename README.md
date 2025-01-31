@@ -1,0 +1,1 @@
+# guruscribe.ru
